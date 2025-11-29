@@ -1,0 +1,2 @@
+# my_kakoeto_repositori
+eto_rili_kruto
